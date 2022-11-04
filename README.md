@@ -16,4 +16,3 @@ que foi trazido a força e duramente escravizado por seculos no Brasil. E o simb
 e que o negro tem seu valor e seu lugar na sociedade. O cerebro humano tem uma imensa capacidade plastica de se adaptar as situaçoes e de molda-las para que
 elas estejam de acordo com aquilo que o ser humano quer. Assim, o ser humano possui algo que talvez lhe seja unico dentre os outros animais: CONCIENCIA.
 ![image](https://user-images.githubusercontent.com/115299020/200050022-4da9a3c5-e2c1-44fc-b111-651c3028c9d0.png)
-![capa Consciência negra](https://user-images.githubusercontent.com/115299020/200050041-6c98c6f4-a418-4944-b087-cd86a2acb690.jpg)
