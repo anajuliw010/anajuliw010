@@ -9,7 +9,7 @@ anajuliw010/anajuliw010 is a ✨ special ✨ repository because its `README.md` 
 You can click the Preview link to take a look at your changes.
 --->
 
-Conciencia negra: A conciencia negra e, basicamente o orgulho da cor da pele negra. A ideia foi extraida dos movimentos sociais que lutam contra o racismo
+Consciência negra: A conciencia negra e, basicamente o orgulho da cor da pele negra. A ideia foi extraida dos movimentos sociais que lutam contra o racismo
 e pela igualdade racial. Conciencia negra e um termo que ganhou notoriedade na decada de 1970, no Brasil, em razao da luta de movimentos sociais que atuavam
 pela igualdade racial, como o movimento Negro Unidos. O termo e, ao mesmo tempo, uma referencia e uma homenagem a cultura ancestral do povo de origem africana,
 que foi trazido a força e duramente escravizado por seculos no Brasil. E o simbolo da luta, da resistencia e a conciencia de que a negritude nao e inferior
